@@ -263,5 +263,5 @@ XoSowmyšyKorsa – сомоподобное проклятое действие
 
 
 ![img](images/iwillkillmyself.jpg)
-
+![whatthepoint](images/Letters1)
 другие гласные обозначаются модификацией согласного на концевом штрихе по одному принципу
