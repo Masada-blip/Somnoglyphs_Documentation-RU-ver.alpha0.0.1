@@ -268,6 +268,6 @@ XoSowmyšyKorsa – сомоподобное проклятое действие
 ![whatapoimt](images/FeorgeFloid.jpg)
 
 
-например:
+например, вариации буквы Vy в зависимомти от гласного:
 
-
+![img](images/
